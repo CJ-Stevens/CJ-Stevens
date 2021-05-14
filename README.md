@@ -12,3 +12,6 @@ You can click the Preview link to take a look at your changes.
 --->
 ![Image](https://cdn.educba.com/academy/wp-content/uploads/2019/09/Security-Testing-1.png.webp)
 https://www.educba.com/security-testing/
+
+GraphQL
+REST vs GraphQL | When to choose one over other | Tech Primers
