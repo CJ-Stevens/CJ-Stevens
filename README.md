@@ -14,4 +14,5 @@ You can click the Preview link to take a look at your changes.
 https://www.educba.com/security-testing/
 
 GraphQL
+https://www.youtube.com/watch?v=4akSaaEYJqs
 REST vs GraphQL | When to choose one over other | Tech Primers
