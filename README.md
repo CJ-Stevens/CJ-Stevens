@@ -5,6 +5,9 @@
 - 💞️ I’m looking to collaborate on **_team project management_**
 - 📫 How to reach me https://www.facebook.com/jinsuwanno/
 
+## Github Stats :octocat:
+
+
 :octocat: :octocat: :octocat:
 <!---
 CJ-Stevens/Chenchira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
