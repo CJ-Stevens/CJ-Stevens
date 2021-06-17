@@ -30,8 +30,12 @@
 ### Thai Music
 [เมดอินไทยแลนด์ คาราบาว](https://www.youtube.com/watch?v=fVdOqSbkDoo&list=RDfVdOqSbkDoo&start_radio=1)<br>
 [(I love you Thailand)](https://www.youtube.com/watch?v=WXsV_ZKHcm4)<br>
+[Bryan Adams & Luciano Pavarott](https://www.youtube.com/watch?v=Ic6z6kFfbNk)<br>
 [อีสานบ้านเฮา](https://www.youtube.com/watch?v=RhfjIUjiAkU)<br>
 [ถ้าเขาสิฮัก](https://www.youtube.com/watch?v=e7Zip5_auIw)<br>
+[สาวบางโพ - ตู้ ดิเรก,ส้ม อมรา](https://www.youtube.com/watch?v=jbVH4-JKSfM)<br>
+[อมพระมาพูด - เบิร์ด ธงไชย,เสกสรรค์ ศุขพิมาย](https://www.youtube.com/watch?v=pYjPGBHM9Bw)<br>
+[แสงจันทร์ - มาลีฮวนน่า Fingerstyle by DEN FINGER](https://www.youtube.com/watch?v=1yVt0rB3K3I)<br>
 [ดูเธอทำ](https://www.youtube.com/watch?v=Dmhg_zFMvIY&list=RD5kTa3EFX7lQ&index=15)<br>
 [อ้อร้อได้ถ้วย วงกลม](https://www.youtube.com/watch?v=5kTa3EFX7lQ&list=RD5kTa3EFX7lQ&start_radio=1)<br>
 [รักควายควาย](https://www.youtube.com/watch?v=45c2yaZesCA&list=RD5kTa3EFX7lQ&index=23)<br>
