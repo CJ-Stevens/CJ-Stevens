@@ -2,7 +2,6 @@
 - 👋 **Hi, I’m @CJ-Stevens**
 - 👀 I’m interested in **_penetration_**
 - 🌱 I’m currently learning **_project management_**
-- 💞️ I’m looking to collaborate on **_team project management_**
 - 📫 How to reach me https://www.facebook.com/jinsuwanno/
 
 ## Github Stats :octocat:
