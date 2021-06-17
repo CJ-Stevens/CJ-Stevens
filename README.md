@@ -24,7 +24,17 @@
 
 ### Thai Music
 [เมดอินไทยแลนด์ คาราบาว](https://www.youtube.com/watch?v=fVdOqSbkDoo&list=RDfVdOqSbkDoo&start_radio=1)<br>
-
+[(I love you Thailand)](https://www.youtube.com/watch?v=WXsV_ZKHcm4)<br>
+[อีสานบ้านเฮา](https://www.youtube.com/watch?v=RhfjIUjiAkU)<br>
+[ถ้าเขาสิฮัก](https://www.youtube.com/watch?v=e7Zip5_auIw)<br>
+[ดูเธอทำ](https://www.youtube.com/watch?v=Dmhg_zFMvIY&list=RD5kTa3EFX7lQ&index=15)<br>
+[อ้อร้อได้ถ้วย วงกลม](https://www.youtube.com/watch?v=5kTa3EFX7lQ&list=RD5kTa3EFX7lQ&start_radio=1)<br>
+[รักควายควาย](https://www.youtube.com/watch?v=45c2yaZesCA&list=RD5kTa3EFX7lQ&index=23)<br>
+[มหาลัยวัวชน-วงพัทลุง](https://www.youtube.com/watch?v=O4LPMp1qTSg)<br>
+[Mahalai Wua chon](https://www.youtube.com/watch?v=vwOOqIow6dM)<br>
+[มีผัวอ้ายกะฮัก](https://www.youtube.com/watch?v=UDnGdoO1mPw)<br>
+[เดินดง](https://www.youtube.com/watch?v=U1YvRG45eS4)<br>
+[]()<br>
 ## Github Stats :octocat:
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=CJ-Stevens&show_icons=true&theme=radical)
