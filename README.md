@@ -26,6 +26,7 @@
 [AC/DC - Back In Black](https://www.youtube.com/watch?v=pAgnJDJN4VA)<br>
 [Survivor - Eye Of The Tiger](https://www.youtube.com/watch?v=btPJPFnesV4)<br>
 [Joan Jett & The Blackhearts - I Hate Myself for Loving You](https://www.youtube.com/watch?v=bpNw7jYkbVc)<br>
+[RUN DMC - Walk This Way](https://www.youtube.com/watch?v=4B_UYYPb-Gk)<br>
 ### Thai Music
 [เมดอินไทยแลนด์ คาราบาว](https://www.youtube.com/watch?v=fVdOqSbkDoo&list=RDfVdOqSbkDoo&start_radio=1)<br>
 [(I love you Thailand)](https://www.youtube.com/watch?v=WXsV_ZKHcm4)<br>
