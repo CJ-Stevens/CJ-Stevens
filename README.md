@@ -1,7 +1,7 @@
 :octocat: :octocat: :octocat:
 - 👋 **Hi, I’m @CJ-Stevens**
 - 👀 I’m interested in **_penetration_**
-- 🌱 I’m currently learning **_project management_**
+- 🌱 I’m currently learning **_Computer Network_**
 - 📫 How to reach me https://www.facebook.com/jinsuwanno/
 ### ** 🎼Music I like**<br>
 [Leave the Door Open](https://www.youtube.com/watch?v=adLGHcj_fmA)<br>
